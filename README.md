@@ -8,6 +8,6 @@ I enjoy building software that combines automation, machine learning, and web de
 
 ### Fun Facts
 - I love to travel
-- Big fan of video games(first-person shooters are my go-to
+- Big fan of video games(first-person shooters are my go-to)
   
 
